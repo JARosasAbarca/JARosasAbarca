@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... any healthcare solution you need a professional point of view, and have a learning opportunity for me
 - 📫 How to reach me ... jose.rosasa@jrconsulting.com.mx, jose.rosasa@icloud.com WA:2213655034
 - 😄 Pronouns: ... Hi/Him/His
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... I love burgers and milkshakes in a meal 
 
 <!---
 JARosasAbarca/JARosasAbarca is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
